@@ -1,0 +1,1 @@
+# Vis-oComputacional-AzureIA-Extra-oDeTextoEmImagens
